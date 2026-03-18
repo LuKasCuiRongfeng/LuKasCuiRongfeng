@@ -1,4 +1,4 @@
-- 👋 进击小日本，精忠报国
+- 👋 进击小日本，打败所有女优，精忠报国
 
 <!---
 LuKasCuiRongfeng/LuKasCuiRongfeng is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
